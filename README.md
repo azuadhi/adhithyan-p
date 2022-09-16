@@ -1,2 +1,2 @@
 # adhithyan-p
-I have money and i don't know how to work 
+I have no money and i don't know how to work 
